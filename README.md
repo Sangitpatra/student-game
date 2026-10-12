@@ -91,4 +91,4 @@ Free to use and modify for personal and educational purposes.
 
 ---
 
-Made with ❤️ by [Your Name]
+Made with ❤️ by [Sangit Patra]
